@@ -1,0 +1,1 @@
+# Software_para_gerenciamento_de_mercearia
